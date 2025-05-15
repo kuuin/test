@@ -1,1 +1,1 @@
-Ich lerne einsiges.
+Ich lerne einiges.
